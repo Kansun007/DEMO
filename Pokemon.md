@@ -1,1 +1,1 @@
-# kuyy gu yai
+# sawad dee kub
